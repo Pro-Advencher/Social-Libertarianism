@@ -1,2 +1,2 @@
 # Social-Libertarianism
-Democracy, Equality, Liberty for all.
+Democracy, Equality, and Liberty for all.
